@@ -20,9 +20,12 @@
 
 14-16 age range
 
+
 mentally unwell
 
+
 i don't talk a ton to people I don't know well.
+
 
 ^^ regardless of that i enjoy making friends / moots
 </details>
@@ -33,6 +36,7 @@ i don't talk a ton to people I don't know well.
  dni/iwc ::
 
 really just basic dni (pro/darkship , homophobes , etc.). i block freely
+
 
 dniuid people under 13 and over 17
 </details>
