@@ -10,7 +10,7 @@
 <details>
  <summary> </summary>
 
- 
+ ![9eb8efc6](https://github.com/user-attachments/assets/1bdf9f65-ea44-4609-9eb2-f2df609318bd)
  byi ::
 
 14-16 age range
